@@ -1,1 +1,6 @@
-# finalproject
+# Minat Dan Bakat
+
+Nama :
+1. IQBAL ALFIAN (18416255201162)
+2. AGENG RISKI P.S 
+3. RAMDHANI
